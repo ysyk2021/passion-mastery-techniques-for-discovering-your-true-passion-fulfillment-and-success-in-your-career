@@ -1,5 +1,3 @@
-Chapter 4: Pursuing Your Passion with Purpose
-=============================================
 
 Pursuing your passion can bring a sense of fulfillment and meaning to your career. However, it's not enough to simply have a passion - you need to pursue it with purpose. In this chapter, we will discuss strategies for pursuing your passion with purpose, including goal-setting, time-management, and prioritization.
 

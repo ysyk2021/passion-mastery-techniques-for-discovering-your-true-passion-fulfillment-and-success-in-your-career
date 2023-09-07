@@ -1,5 +1,3 @@
-Chapter 9: Conclusion
-=====================
 
 Passion Mastery is a journey towards discovering your true passion, fulfillment, and success in your career. In this book, we have discussed various techniques and strategies for finding your passion, overcoming obstacles, building a personal brand, and achieving success and fulfillment.
 

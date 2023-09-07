@@ -1,5 +1,3 @@
-Chapter 8: Maintaining Passion and Purpose
-==========================================
 
 In this chapter, we will discuss the importance of maintaining passion and purpose in your career. We will explore strategies for renewal, curiosity, and learning, as well as the benefits of maintaining passion and purpose for improved creativity and engagement.
 

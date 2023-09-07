@@ -1,4 +1,4 @@
-# Introduction
+
 
 Have you ever felt unfulfilled or unsatisfied in your career? Do you find yourself constantly searching for something more, but not knowing what that is? If so, you're not alone. Many people struggle to find their true passion and purpose in their professional lives.
 
@@ -11,3 +11,7 @@ At the heart of this book is the belief that everyone has the capacity to discov
 So, are you ready to discover your true passion, achieve fulfillment, and find success in your career? Let's get started!
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng

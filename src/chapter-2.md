@@ -1,5 +1,3 @@
-Chapter 2: Assessing Your Interests and Talents
-===============================================
 
 Assessing your interests and talents is a crucial first step in discovering your true passion, fulfillment, and success in your career. In this chapter, we will discuss techniques for self-assessment, skills auditing, and career exploration, as well as the benefits of assessing your interests and talents for improved career decision-making and direction.
 
