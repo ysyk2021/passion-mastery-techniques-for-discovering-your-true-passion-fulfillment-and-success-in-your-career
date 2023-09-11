@@ -1,5 +1,4 @@
-Chapter 2: Assessing Your Interests and Talents
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In order to pursue your true passion and achieve fulfillment in your career, it is crucial to assess your interests and talents. This chapter will guide you through the process of understanding yourself better and uncovering areas where your true passions lie. By identifying your interests and leveraging your unique talents, you can align your career path with your intrinsic motivations and increase your chances of success.
 

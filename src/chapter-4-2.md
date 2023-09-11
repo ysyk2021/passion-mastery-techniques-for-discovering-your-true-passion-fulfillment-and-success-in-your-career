@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Goal-Setting, Time Management, and Prioritization
-===========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Setting clear goals, effectively managing time, and prioritizing tasks are essential skills for discovering your true passion, achieving fulfillment, and finding success in your career. In this chapter, we will explore various strategies and techniques to help you set meaningful goals, optimize your time management, and prioritize your tasks for maximum productivity and progress.
 

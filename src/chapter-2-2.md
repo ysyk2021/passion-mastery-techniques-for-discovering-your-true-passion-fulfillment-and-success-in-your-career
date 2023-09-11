@@ -1,5 +1,4 @@
-Chapter 3: Techniques for Self-Assessment, Skills Auditing, and Career Exploration
-==================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 To discover your true passion, fulfillment, and success in your career, it is important to engage in self-assessment, skills auditing, and career exploration. This chapter outlines practical techniques and strategies that can assist you in these areas. By utilizing these techniques, you can gain valuable insights into your strengths, interests, and aspirations, enabling you to make informed career choices and embark on a fulfilling professional journey.
 

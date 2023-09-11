@@ -1,5 +1,4 @@
-Chapter 8: Navigating Career Transitions
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Embarking on a career transition can be a transformative and exciting journey. In this chapter, we explore effective strategies for navigating career transitions and successfully transitioning into a new field that aligns with your true passion, fulfillment, and success.
 

@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Career Change, Networking, and Skill-Building
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Embarking on a career change can be an exciting yet challenging endeavor. In this chapter, we explore effective strategies for navigating career transitions, building a strong professional network, and developing essential skills to thrive in your new chosen path.
 

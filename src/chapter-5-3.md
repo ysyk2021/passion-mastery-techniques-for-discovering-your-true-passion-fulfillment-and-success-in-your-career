@@ -1,5 +1,4 @@
-Chapter 4: The Benefits of Navigating Career Transitions for Improved Flexibility and Versatility
-=================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Navigating career transitions is an essential skill in today's ever-evolving work landscape. In this chapter, we explore the numerous benefits that come from embracing and navigating career transitions. By developing flexibility and versatility in our careers, we can adapt to change, seize new opportunities, and achieve long-term success and fulfillment.
 

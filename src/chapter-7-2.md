@@ -1,5 +1,4 @@
-Chapter 7: Strategies for Performance Evaluation, Feedback, and Reflection
-==========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Evaluating your performance, seeking feedback, and engaging in self-reflection are essential components of personal and professional growth. In this chapter, we delve into effective strategies for evaluating your performance, actively seeking feedback, and engaging in reflective practices to enhance your passion, fulfillment, and success in your career.
 

@@ -1,5 +1,4 @@
-Chapter 2: The Benefits of Assessing Your Interests and Talents for Improved Career Decision-Making and Direction
-=================================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In order to make informed career decisions and find true fulfillment and success, it is crucial to assess your interests and talents. This chapter explores the numerous benefits that come from understanding yourself better and uncovering your areas of passion and expertise. By assessing your interests and talents, you can enhance your career decision-making process and gain clarity in choosing the right path for yourself.
 

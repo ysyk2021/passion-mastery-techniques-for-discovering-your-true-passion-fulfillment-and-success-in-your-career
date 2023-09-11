@@ -1,5 +1,4 @@
-Chapter 10: Strategies for Renewal, Curiosity, and Learning
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 As you progress in your career and life, it's important to continually renew your passion, curiosity, and thirst for learning. In this chapter, we explore effective strategies for renewal, curiosity, and learning that will help you stay engaged, fulfilled, and successful in your career.
 
